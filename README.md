@@ -5,5 +5,8 @@ deshabilita  explore.exe  añade sus propias key en el registro
 ![image](https://user-images.githubusercontent.com/91295669/134610489-87718118-eb30-43a5-8a20-483ea8610c98.png)
 clave de  desbloqueo  hunter 
 tambien deshabilita el administrador de tareas haciendolo dificil de eliminar 
+mi nombre es hunter dexter tengo un pequeño grupo de seguridad informatica donde  compartimos conocimiento y ayudamos que esperas para unirte ha esta gran familia 
+https://chat.whatsapp.com/FduNfEHQ0U3Kc3aME43wY3
+
 
 
